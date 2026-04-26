@@ -1,0 +1,1 @@
+# kurzor.tech
